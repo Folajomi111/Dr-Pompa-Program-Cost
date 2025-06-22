@@ -1,4 +1,4 @@
-# How Much Does Dr Pompa Cost Per Month?
+# How Much Does Dr Pompa Program Cost Per Month?
 
 Not too long ago, I was in a tough spot with my health. I was drained, frustrated, and desperately searching for something that could help me feel like myself again.
 
